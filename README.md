@@ -1,2 +1,0 @@
-# mdm-canl-
-mdm canlı
